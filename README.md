@@ -1,1 +1,13 @@
 # RIFAFIFA
+
+Designing a website for my personal brand.
+
+RIFAFIFA GAMING:
+
+RIFAFIFA BLING:
+
+RIFAFIFA ART:
+
+RIFAFIFA CLOTHING: 
+
+RIFAFIFA YOUTUBE: 
